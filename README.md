@@ -1,6 +1,8 @@
 # People.Chris-Langan
 # Home:
-https://www.youtube.com/@CTMURadio
+https://CTMU.org
+- Channel: https://www.youtube.com/@CTMURadio
+- https://megafoundation.substack.com/p/teleologic-evolution
 
 # Presentation:
 ## format: Interview
