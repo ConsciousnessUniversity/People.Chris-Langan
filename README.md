@@ -18,5 +18,5 @@ https://www.youtube.com/@CTMURadio
 - [Man with 200 IQ on the Human Singularity | Chris Langan](https://youtu.be/wcaETiyej7Q)
 - [Man With 200 IQ Explains Hell & God](https://youtu.be/eWQ_Dsg1TmY)
 
-# Debate:
+# Discussion:
 - [Chris Langan Λ Bernardo Kastrup on Consciousness](https://youtu.be/HsXxgQy4xLQ)
