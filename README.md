@@ -7,3 +7,4 @@
 - [Man With 200 IQ Says Death Isn’t the End](https://youtu.be/9EZ-1dcc_Sc)
 - [Man With 200 IQ Explains What Humans Are](https://youtu.be/I4f9Q0Cejq4)
 - [Man with 200 IQ on the Human Singularity | Chris Langan](https://youtu.be/wcaETiyej7Q)
+- [Man With 200 IQ Explains Hell & God](https://youtu.be/eWQ_Dsg1TmY)
