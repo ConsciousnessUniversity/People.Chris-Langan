@@ -5,6 +5,7 @@ https://www.youtube.com/@CTMURadio
 # Presentation:
 ## format: Interview
 - [Chris Langan - The Interview THEY Didn't Want You To See - CTMU [Full Version; Timestamps]](https://youtu.be/9miVG2xT5jY)
+- [Chris Langan - Origins of the CTMU Self-Simulation Theory](https://youtu.be/xwAffwDiy3A)
 
 # Appearance:
 - [Chris Langan: The Most In-Depth Interview on the CTMU](https://youtu.be/N-bRM1kYuNA)
